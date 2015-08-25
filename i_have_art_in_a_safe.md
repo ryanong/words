@@ -1,0 +1,4 @@
+I have art in a safe I can never open.
+
+
+Rarely do we know the cost of things we want. I dreamed of traveling the world and becoming wise. I figured it had to be done alone. I gained wisdom along with a jaded lonely soul. What value is there in an experienced unshared? Is it any different than a lie you tell to others and yourself? Few will understand you as they must reverse engineer the experience from your stories. Some may have something similar. I have met travelers who love owning an experience and having it for themselves. To me this feels like art in a safe. Something that you use to hold over others and feel special. As much as I love being unique if it isn't something that others can appreciate then it isn't valuable.
