@@ -1,21 +1,21 @@
-On balance and originality
+On balance and originality  
 
-I made a small game for psychonauts. This game consists of one task and two goals.
+I made a small game for psychonauts. This game consists of one task and two goals.  
 
-task:  Create content that is as psychoactive as possible.
-goal:  Consumers must be unsure of whether you have ever taken psychedelics
-goal:  Consumers must be unsure of whether you created said content with the goal of it being psychoactive.
+task:  Create content that is as psychoactive as possible.  
+goal:  Consumers must be unsure of whether you have ever taken psychedelics  
+goal:  Consumers must be unsure of whether you created said content with the goal of it being psychoactive.  
 
 The more psychoactive the content and the more unsure a consumer of said content is, the closer you are to mastering the game.
 
-Creators who have failed at this game:
-Me
-The Beatles
-Radiohead
-Thom York
-Trent Renzor
-Every Jam Band ever known to man
-The writer of Inception, Ground hogs day, primer, and momento.
+Creators who have failed at this game:  
+Me  
+The Beatles  
+Radiohead  
+Thom York  
+Trent Renzor  
+Every Jam Band ever known to man  
+The writer of Inception, Ground hogs day, primer, and momento.  
 
 Most creators don’t have to hide the fact that they have taken psychedelics. But I think there is something beautiful about hiding it.
 
