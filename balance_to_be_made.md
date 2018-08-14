@@ -7,4 +7,7 @@ Sometimes a glimmer of balance can be found through.
 You are rushed passed it as you have new experiences.  
 For me it feels unreachable. I am too scared to stop as I am afraid of missing this new perspective that I journey towards.  
 I have heard from others, when balance is found you will hit a wall. You will be dragged towards it and will do anything for it. All is fair they say.  
-I hope... I hope.
+I hope... I dream.
+
+
+I hit that wall and obliterated it. I am not only me. I am all those around me.
